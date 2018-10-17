@@ -12,6 +12,8 @@ Where is Ethan Moe?
 	Hospital?
 	Home, playing BO4?
 	Having sex with his mom?
+	Playing with shit?
+	
 	
 	
 	
