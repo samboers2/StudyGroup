@@ -13,6 +13,7 @@ Where is Ethan Moe?
 	Home, playing BO4?
 	Having sex with his mom?
 	Playing with his shit?
+	I guess we will never know.
 
 	
 	
