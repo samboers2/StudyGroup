@@ -10,4 +10,6 @@ Scoop Poop
 
 Where is Ethan Moe? 
 	Hospital?
+	Home, playing BO4?
+	
 	
