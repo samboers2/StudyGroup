@@ -8,4 +8,6 @@ scoop
 Scoop Poop
 
 
-Where is Ethan Moe?
+Where is Ethan Moe? 
+	Hospital?
+	
