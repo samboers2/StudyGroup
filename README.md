@@ -15,7 +15,7 @@ Where is Ethan Moe?
 	Playing with his shit?
 	I guess we will never know.
 	Brandon Clemons asdljkhf
-	ur mum gae
+	ur mum gae, no you
 	
 
 	
